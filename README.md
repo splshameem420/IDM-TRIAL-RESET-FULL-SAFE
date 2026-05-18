@@ -58,7 +58,7 @@ Accepted values:
 
 ## IDM Activation Script
 
-### Website: [https://akashmiaofficialgroup.icu](https://www.akashmiaofficialgroup.icu) 🔗  
+### Website: [https://akashmiaofficial.icu](https://www.akashmiaofficial.icu) 🔗  
 ---
 
 Update the README file for GitHub with a modern twist and captivating presentation!
